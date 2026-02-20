@@ -62,5 +62,3 @@ I am actively seeking full-time opportunities beginning May 2026 in:
 
 📧 [smachannagari@mail.bradley.edu](mailto:smachannagari@mail.bradley.edu)
 📞 (309) 550-0383
-- ⚡ Fun fact: ...
--->
